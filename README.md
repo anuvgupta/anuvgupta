@@ -1,5 +1,4 @@
-### Hi there 👋
-Currently transcending into an AI...
+#### Currently transcending into an AI 🌱
 
 <!--
 **anuvgupta/anuvgupta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
