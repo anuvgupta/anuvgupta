@@ -1,4 +1,4 @@
-**&nbsp;Transcending into an AI...&nbsp;&nbsp;&nbsp;🌱&nbsp;&nbsp;&nbsp;**[click me](https://github.anuv.me/)
+**&nbsp;&nbsp;&nbsp;🌱&nbsp;&nbsp;&nbsp;**[click me](https://github.anuv.me/)
 
 <!--
 **anuvgupta/anuvgupta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
